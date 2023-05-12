@@ -2,7 +2,7 @@
 
 美区共享AppStore ID：[一键访问获取ID](https://fk.maosu.top/buy/10)<br/>
 
-### Android 推荐收集国外常用的安卓(Android)软件下载地址，有Youtube,FaceBook,Google浏览器,Twitter,Telegram等 <br/>
+### Android 推荐收集国外常用的安卓(Android)软件下载地址，有Youtube,FaceBook,Google浏览器,Twitter,Telegram等 （以下下载链接都需要代理才能访问，可白嫖下面的推荐代理来下载）<br/>
 
 Google 浏览器下载：[一键访问](https://apkpure.com/cn/google/com.google.android.googlequicksearchbox)<br/>
 
