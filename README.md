@@ -32,7 +32,7 @@ V2rayNG(可用下方订阅的工具，同 Clash For Android)下载：[一键访�
 
 - 8.5折优惠卷码：VIPHAPPY
 
-- [猫速云VPN官网一键直达](https://b.maosu.top?_blank) 
+- [猫速云VPN官网一键直达](https://maosu.top?_blank) 
 
 - [TG群组一键直达](https://t.me/maospeed?_blank) 
 
